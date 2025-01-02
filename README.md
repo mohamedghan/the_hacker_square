@@ -1,0 +1,1 @@
+the hackersquare is a community of cybersecurity experts getting together to help one another out. The cybersecurity industry relies on collaboration and networked learning. We provide a place for that to happen.
